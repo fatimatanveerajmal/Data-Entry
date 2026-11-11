@@ -18,21 +18,21 @@ I provide accurate and reliable data entry services, including typing, copy-past
 
 ## My Services
 
-- Data Entry
-- Copy-Paste Work
-- Typing & Text Formatting
-- Excel Data Entry
-- Google Sheets Management
-- Data Organization
-- Data Checking & Updating
-- Document Formatting
+Data Entry
+Copy-Paste Work
+Typing & Text Formatting
+Excel Data Entry
+Google Sheets Management
+Data Organization
+Data Checking & Updating
+Document Formatting
 
 ## Work Approach
 
-- Accuracy and attention to detail
-- Organized data management
-- Timely project delivery
-- Professional work quality
+Accuracy and attention to detail
+Organized data management
+Timely project delivery
+Professional work quality
 
 ## Let's Work Together!
 
